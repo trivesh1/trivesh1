@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Trivesh Dubey
-**A passionate Web Devlopment || Front-end Engineering Student || DSA With JAVA**
+**A passionate Web Devlopment || Front-end Engineer|| DSA With JAVA**
 
 Email Me 👉 ✉️ **pandittrivesh@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
